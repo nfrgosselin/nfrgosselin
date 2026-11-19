@@ -6,5 +6,4 @@ I spent over a decade leading products and teams in venture-backed startups, and
 
 ## Find me
 
-[nategosselin.com](https://nategosselin.com)
-[fromsalt.com](https://fromsalt.com)
+[nategosselin.com](https://nategosselin.com) | [fromsalt.com](https://fromsalt.com)
